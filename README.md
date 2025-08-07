@@ -1,1 +1,1 @@
-First time ever making a project on my own.
+First time ever making projects on my own.
